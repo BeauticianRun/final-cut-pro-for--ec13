@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with professional Final Cut Pro for macOS Addon | reverb + motion-tracking, the #1 addon. Includes reverb and motion-tracking for a smoother and
 
 
 
